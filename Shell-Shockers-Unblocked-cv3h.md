@@ -4,7 +4,7 @@
 
 Shell Shockers is a popular first-person shooter (FPS) game where players take on the role of armed eggs battling it out in intense multiplayer arenas. Developed by Blue Wizard Digital, the game has gained a massive following due to its unique concept, fast-paced action, and engaging gameplay.
 
-## <a href="[https://classroom-6x-cool.gitlab.io/]">👉 Shell Shockers Unblocked 👈</a>
+## <a href="https://classroom-6x-cool.gitlab.io/">👉 Shell Shockers Unblocked 👈</a>
 
 ![Shell Shockers Unblocked](https://github.com/user-attachments/assets/63eb00c7-d781-426a-9db5-014f83ffda7f)
 
