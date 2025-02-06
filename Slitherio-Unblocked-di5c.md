@@ -2,7 +2,7 @@
 
 Are you ready to dive into the **epic** world of *Slither.io Unblocked*? This **ultimate** multiplayer game has taken the gaming community by storm, offering a **hyper-competitive** and **insanely addictive** experience that keeps players coming back for more. Whether you're a **fearless warrior** or a **mystic strategist**, *Slither.io Unblocked* delivers a **blazing-fast**, **savage**, and **unstoppable** adventure that will leave you craving more.
 
-## <a href="https://classroom6xcool.com/">👉 Slither.io Unblocked 👈</a>
+## <a href="https://classroom-6x-unblocked.github.io/">👉 Slither.io Unblocked 👈</a>
 
 ![Slitherio Unblocked](https://github.com/user-attachments/assets/bf765c87-2f97-44ea-8e46-18a043f7b75e)
 
